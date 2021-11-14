@@ -1,6 +1,6 @@
 # My space 🚀
 
-Welcome to my blog!
+Welcome to my blog 👋
 
 ## Posts
 
